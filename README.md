@@ -1,0 +1,1 @@
+We mapped occurrences of the genus Suillus in the UK from the British Mycological Society records. We cannot disclose the records ourselves, but folk can contact the British Mycological Society and ask for the database.
